@@ -1,1 +1,1 @@
-Alex copuright
+Alex copyright
